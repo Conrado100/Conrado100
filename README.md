@@ -1,0 +1,1 @@
+Self-motivated Fraud Prevention Supervisor with over 6 years of relevant experience in AML, KYC and Transaction Screening. Possessing basic knowledge off programming in Java and strongly focused on development in that area. Having educational background in Computer Science and Econometrics. Currently looking for career opportunity at Entry Level of Software Development.
